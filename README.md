@@ -1,1 +1,0 @@
-# lqmag.github.io
